@@ -13,4 +13,4 @@
 - 😊 Pronouns: She/Her
 - 🎉 Fun facts:
   - Former Tenor Saxophone player 🎷🎶.
-  - My favourite shows are Jeopardy, Archer, The Office and Arrested Development.
+  - My favourite shows are Jeopardy, Archer, The Office, Drunk History and Arrested Development.
