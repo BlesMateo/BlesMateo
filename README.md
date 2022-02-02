@@ -5,9 +5,9 @@
 
 -->
 
-### My name is Bles! Here are a few facts about me:
+### My name is Bles!
 
-- 💻 Currently working on my website.
+- 💻 I am currently working on my website.
 - 🌱 Currently learning Typescript (since January 31, 2022) and I am also looking into Machine Learning 🤖
 - 🤝 Connect with me on Linkedin: https://www.linkedin.com/in/blesildaangelicamateo/
 - 😊 Pronouns: She/Her
