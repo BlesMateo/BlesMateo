@@ -12,5 +12,5 @@
 - 🤝 Connect with me on Linkedin: https://www.linkedin.com/in/blesildaangelicamateo/
 - 😊 Pronouns: She/Her
 - 🎉 Fun facts:
-  - Former Tenor Saxophone player 🎷🎶.
+  - Former Tenor Saxophonist 🎷🎶.
   - My favourite shows are Jeopardy, Archer, The Office, Drunk History and Arrested Development.
