@@ -8,7 +8,7 @@
 ### My name is Bles!
 
 - 💻 I am currently working on my website.
-- 🌱 Currently learning Typescript (since January 31, 2022) and I am also looking into Machine Learning 🤖
+- 🌱 Currently learning Python
 - 🤝 Connect with me on Linkedin: https://www.linkedin.com/in/blesildaangelicamateo/
 - 😊 Pronouns: She/Her
 - 🎉 Fun facts:
