@@ -7,7 +7,6 @@
 
 ### My name is Bles!
 
-- 💻 I am currently working on my website.
 - 🌱 Currently learning Python
 - 🤝 Connect with me on Linkedin: https://www.linkedin.com/in/blesildaangelicamateo/
 - 😊 Pronouns: She/Her
